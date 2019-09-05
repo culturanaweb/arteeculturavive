@@ -56,29 +56,23 @@ Terça e quinta, das 14h às 16h
 ### Conheça os Professores do Projeto
 As aulas ocorrem até 1º de dezembro e, ao final dos trabalhos, alunos e professores apresentarão um espetáculo na Feira do Guará.
 
-* Abder Paz
-Teatro e Circo
+* Abder Paz: Teatro e Circo
 
-* Cid Aroeira
-Samba Pilado
+* Cid Aroeira: Samba Pilado
 
-* Dudu Oliveira
-Cavaquinho
+* Dudu Oliveira: Cavaquinho
 
-* Fred cachorrão
-Capoeira Regional
+* Fred cachorrão: Capoeira Regional
 
-* Juraci Moura
-Confecção de Instrumentos
-
+* Juraci Moura: Confecção de Instrumentos
 
 ## Midia - Fotos e Vídeos
 
 ## Imprensa
 Arte e Cultura Vive, na imprensa.
 
-globo.com
-g1.globo.com/df/distrito-federal/
+Globo
+http://g1.globo.com/df/distrito-federal/
 
 Correio Brasiliense
 www.correiobraziliense.com.br/
